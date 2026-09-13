@@ -56,6 +56,10 @@
 
 <p align="center">anyway thats p much it so BYE have a cheeseburgertastic day or night.. u look great today <33 </p>
 
+<p align="center">
+  <img src="https://f2.toyhou.se/file/f2-toyhou-se/images/127641075_Wb6qiFIXsZOKZp2.gif" alt="poop" width="400">
+</p>
+
 
 
 
