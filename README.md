@@ -5,7 +5,7 @@
 
 <p align="center">i reaaally like slingshot and im dating a fictive of him which ig makes me a slingcoil shipper... if that bothers you i wont be offended so feel free to block me or wtv. also speaking of like boundaries i usually read everyone´s dni but the only device im allowed to have (yes, even in the comfort of my own home) is a HEAVILY restricted school chromebook so if your dni is on strawpage, guns.lol, prns.cc, google docs/slides/etc. or any kind of social media i cant get to it 💔💔 if i accidentally break your dni its cuz i literally cant access it which isnt your fault but its also not mine so pls just block and move on </p>
 
-<p align="center">oh btw im not really in any fandoms except for phighting, bad things, and fact attack adventures so if you see cosplays of guys from other fandoms they were prolly made for or by my headmates </p>
+<p align="center">oh btw im not really in any fandoms except for phighting, bad things, die of death, and fact attack adventures so if you see cosplays of guys from other fandoms they were prolly made for or by my headmates </p>
 
 <p align="center">we permanently block anyone that acts sexual, interacts when our display name says not to, or breaks my dni </p>
 
