@@ -45,6 +45,7 @@
        <li>people who yumeship with me... i support but i support from a distance because it makes me wildly uncomfortable</li>
       <li>people who hate on innocent stuff like tone tags, typing quirks, essas, alterhumanity, certain fandoms, neopronouns, xenogenders, yumeshipping, etc. just people who are unwhimsical and unfun and pro cringe culture in general</li>
       <li>people who are actively roleplaying. in other words its ok if you like roleplaying as long as ur not doing it while speaking to me</li>
+           <li>anyone associated with @kyuparin to any extent. i won't be elaborating because it's really personal and it's not my situation to talk about in the first place tbh. i'm not gonna tell you not to interact with it but i don't want to be associated with people that do. again it's personal and not my situation to talk about so DON'T ask</li>
     </ul>
   </div>
 </div>
