@@ -1,7 +1,7 @@
 <h1 align="center">BEATZZS INTRO YAYYYY</h1>
 <p align="center">call me beatzz || syshost || furry || 15 || eng/de 🇺🇸🇩🇪 (english is preferred) </p>
 
-<p align="center">ty for actually reading this. hi im beatzz and my current main fandoms are phighting, seildirectory/ihasafacelulz, funhouse, bad things, fact attack adventures, brandonworks, and ocean terror </p>
+<p align="center">ty for actually reading this. hi im beatzz and my current main fandoms are phighting, seildirectory/ihasafacelulz, funhouse, bad things, fact attack adventures, brandonworks, and ocean terror. i really love lemons, frutiger aesthetics, and cats. im also a border collie otherlink and you will hear me address myself as a dog a lot </p>
 
 <p align="center">i yume a couple guys but my favorite f/o is manny carlson <333</p>
 
