@@ -10,7 +10,7 @@
 <p align="center">im on a lot of dnis and im not really comfy explaining why but jsyk ill block you if im on your dni just to ensure i dont accidentally break it and int with you </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/82b7abaddb41b6bfc2bbd7745a854844/db18f1269d919fe1-d6/s400x600/72b7a17fe31846fae90306d654f9cfddeda9babd.gif" alt="poop" width="400">
+  <img src="https://dividers.crd.co/assets/images/gallery12/038867c9.gif?v=05d33f91" alt="poop" width="400">
 </p>
 
 <h1 align="center">BYI (none of this applies to my partner or siblings)</h1>
@@ -47,7 +47,7 @@
 </div>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/82b7abaddb41b6bfc2bbd7745a854844/db18f1269d919fe1-d6/s400x600/72b7a17fe31846fae90306d654f9cfddeda9babd.gif" alt="poop" width="400">
+  <img src="https://dividers.crd.co/assets/images/gallery12/038867c9.gif?v=05d33f91" alt="poop" width="400">
 </p>
 
 <p align="center">those two lists are ltrly all i ask of people. if you break either of them then by god youre an idiot and its your fault i blocked you </p>
